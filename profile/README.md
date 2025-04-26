@@ -1,7 +1,7 @@
 
 
 
-|![photo_2025-03-14_09-58-27 - Copy](https://msjacampanile.org/wp-content/uploads/2025/02/IMG_3308-1200x802.jpeg)|<a href="https://modhehe.com/block-blast-6-4-5/">![photo_2025-03-10_09-33-16](https://tuanvd.com/wp-content/uploads/2017/10/Download.png)</a>|
+|![photo_2025-03-14_09-58-27 - Copy](https://msjacampanile.org/wp-content/uploads/2025/02/IMG_3308-1200x802.jpeg)|<a href="https://tinyurl.com/4nwbw8xn">![photo_2025-03-10_09-33-16](https://tuanvd.com/wp-content/uploads/2017/10/Download.png)</a>|
 |:-------------------------------------------------:|-----------------------|
 | Plataforma: Android 5.0+                   | Versión: v6.4.5   |
 | Tamaño: 135.3MB                                 | ⭐️⭐️⭐️⭐️⭐️ (5/5) |
@@ -9,6 +9,8 @@
 
 
 **Unduh Block Blast 6.4.5 APK: Game Puzzle Klasik yang Menghibur dan Adiktif!**
+
+Unduh: [Block Blast 6.4.5 APK](https://tinyurl.com/4nwbw8xn)
 
 Jika kamu penggemar game puzzle yang seru dan menantang, **Block Blast 6.4.5 APK** adalah pilihan tepat yang wajib kamu coba. Versi terbaru ini menghadirkan gameplay klasik yang sederhana namun tetap bikin ketagihan. Dengan visual yang lebih halus dan kontrol yang responsif, Block Blast kini semakin menyenangkan untuk dimainkan di perangkat Android kamu.
 
